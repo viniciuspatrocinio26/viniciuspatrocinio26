@@ -11,6 +11,7 @@ Meu nome e vinicius
 ### Você entrar em contato comigo 📫
 
 00001125511217sp@al.educacao.sp.gov.br
+
 @viniciuspatrocinio
 
 ![](https://media1.tenor.com/m/iUaVjxQcq40AAAAC/yuji-itadori-suku.gif)
